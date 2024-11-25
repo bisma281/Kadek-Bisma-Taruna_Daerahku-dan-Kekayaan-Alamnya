@@ -1,0 +1,1 @@
+# Kadek-Bisma-Taruna_Daerahku-dan-Kekayaan-Alamnya
